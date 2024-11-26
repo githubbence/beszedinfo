@@ -1,0 +1,1 @@
+Beszedinfo labor 6
